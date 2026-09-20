@@ -1,0 +1,1 @@
+Sepatu A mendapat diskon 13%% sehingga harganya menjadi
